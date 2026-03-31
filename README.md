@@ -2,3 +2,4 @@
 ​You can verify my work and community engagement here:
 ​TikTok: [tiktok.com/@fayzonelegacy]
 ​Facebook: [https://www.facebook.com/share/17qYud6NLV/]
+<meta name="talentapp:project_verification" content="fd4540190629ef5311129a0f98a26209883b526e3b173e63ac00a2f3e3e6dc1c83a2d7b55986df489cfe5f7398bc43916db1bec7d393b5dcd74bb8a8a32c7efd">
